@@ -1,0 +1,1 @@
+If you need to make this cake gluten-free, I recommend a gluten-free flour that has been formulated to be a 1:1 substitute.
